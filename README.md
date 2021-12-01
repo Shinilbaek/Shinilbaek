@@ -6,4 +6,5 @@
 - Research Student, GSIS, Tohoku University, Miyagi, Japan
 
 And I will be go on my further learning on this account!
+
 My new personal homepage will be updated after master entrance.
