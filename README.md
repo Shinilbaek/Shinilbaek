@@ -4,7 +4,6 @@
 - I’m currently learning mathematics and desicion making process.
 - I’m looking to collaborate on artificial intelligence and reinforcement learning program.
 - [Here is my Email](mailto:baisy1999@outlook.com) baisy1999_at_outlook.com
-- Research Student, GSIS, Tohoku University, Miyagi, Japan
 - English, Chinese, Japanese, Korean contacts are welcomed.
 ---
 
